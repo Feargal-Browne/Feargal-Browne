@@ -25,3 +25,4 @@ Some of my achievements are:
 * Irish Science Teachers’ Association (ISTA) Student Award at SciFest@College '24
 * CEO of Cantivia - April '26 to present
 * CTYI Early University Entrance Physics Module '26
+* Emergent Ventures Grantee '26
